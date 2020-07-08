@@ -1,0 +1,6 @@
+ppp
+pppppppppppppppppppppp
+ppppppppppppppppppppppppppppppppppp
+oooooooooooooooooooooooooooooooooooooooooooo
+
+oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo:
